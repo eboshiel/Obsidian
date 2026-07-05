@@ -1,1 +1,0 @@
-The meaning of death can be illustrated by a tree branch. The instant a living branch is broken off, though it still looks alive, it is "dead" since it has been separated from its source of life.

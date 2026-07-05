@@ -1,1 +1,0 @@
-# Sex can create emotional wounds. And can undermine the root of our identity

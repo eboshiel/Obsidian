@@ -1,1 +1,0 @@
-# If I don’t remember the death He chose then I can’t cherish the life I’ve been given

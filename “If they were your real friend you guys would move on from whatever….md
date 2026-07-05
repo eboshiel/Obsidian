@@ -1,1 +1,0 @@
-“If they were your real friend you guys would move on from whatever and keep going forward. Say sorry and move on.”

@@ -1,1 +1,0 @@
-Last thing, I found it so much easy to talk to you when we were friends, now it seems I have to fight for a conversation with you. Almost always it feels like there are things you much rather be dealing with or preoccupied by.

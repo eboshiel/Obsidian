@@ -1,5 +1,0 @@
-I know they say Junior year is the hardest and that might scare you. Trust I was too when I was your shoes not too long ago. I said once and I’m going to say it again…YOU’RE AMAZING. You going to conquer this school year through the good and the bad. Absolutely crush it in Tennis season and the other sports (honestly tennis superior>>>>) I know summer probably went extremely fast but I hope it was one of the best summers. My advice is that you relish in your childhood because it comes at you fast and you’ll be graduating before you know it. Be safe, be happy, and number one thing to know is that you’re loved by so many people! You’re destined for such big things more than you can comprehend right now. 
-
-I love you, Stay Breezy Eazy E. 😎😎🫶
-
-PS: I only said that thing about Tennis because I know its your favorite. I still think it’s boring asl. LOL

@@ -1,1 +1,0 @@
-When I move with anxiety and depression, I am self serving Satan, but when I move with faithfulness and lovingness to my neighbor, I move self-serving God

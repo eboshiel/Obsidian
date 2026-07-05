@@ -1,1 +1,0 @@
-# My favorite childhood growing up was SpongeBob. I actually wasn’t allowed to watch cuz my dad said it was stupid but I watched it to spite him…but I resonated with how silly SpongeBob can be even when the show touched more “serious” topics

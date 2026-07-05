@@ -1,2 +1,0 @@
-# Sleep is a parable that God is God and we are mere men. God handles the world quite nicely while a hemisphere sleeps. Sleep is like a broken record that comes around with the same message every day: Man is not sovereign. Man is not sovereign. Man is not sovereign. Don’t let the lesson be lost on you. God wants to be trusted as the great worker who never tires and never sleeps. He is not nearly so impressed with our late nights and early mornings as he is with the peaceful trust that casts all anxieties on him and sleeps.
-**– John Piper –**

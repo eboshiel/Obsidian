@@ -1,1 +1,0 @@
-# Don't be sad cause it's over but happy cause it happened. Work to earn things(back) in life. Bonds, jobs, relationships etc.

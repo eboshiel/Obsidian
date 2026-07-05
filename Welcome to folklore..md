@@ -1,4 +1,0 @@
-This album was so mature compared to the others. You can tell the lessons of life and being in the music business for many years have totally affected her in a unique way. The tone of the music definitely conveyed me to ponder and think about what story she was trying to tell to the listeners. This was something I appreciated a lot more than the others before. She allowed me to feel her emotions and step inside of her shoes for an hour. Such a lovely concept of an album. My only critique? Along with the maturity means that her lyrics are explicit (and implicit) but I hate to take that away from her. That is the only downside that I've seen but overlooking that this album is something I can chill and relax or just simply study because of the mellowness of it. Highlights include: the 1, exile, and invisible string.
-
-
-Rating: 7.8 (I enjoy slightly more than reputation but not as much as speak now just to explain this rating)

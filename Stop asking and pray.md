@@ -1,1 +1,0 @@
-# Stop asking and pray

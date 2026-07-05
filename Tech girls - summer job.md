@@ -1,1 +1,0 @@
-https://scholarships.mainstay.com/#/sb2_c61d45800e45412e9

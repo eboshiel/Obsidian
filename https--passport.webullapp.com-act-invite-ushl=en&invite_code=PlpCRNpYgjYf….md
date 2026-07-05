@@ -1,1 +1,0 @@
-https://passport.webullapp.com/act/invite-us?hl=en&invite_code=PlpCRNpYgjYf&invite_source=wb_inf&redirect_uri=https%3A%2F%2Fact.webullapp.com%2Factv2%2Fdownload%2Fus%2Findex.html%3Fhl%3Den%26invite_code%3DPlpCRNpYgjYf%26invite_source%3Dwb_inf%26source%3Dmain&source=main

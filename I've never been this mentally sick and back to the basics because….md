@@ -1,1 +1,0 @@
-# I've never been this mentally sick and back to the basics because I don't have anyone to talk to.

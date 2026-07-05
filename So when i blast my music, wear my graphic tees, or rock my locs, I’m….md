@@ -1,1 +1,0 @@
-# So when i blast my music, wear my graphic tees, or rock my locs, I’m queen in their eyes, but to the world, Im a nuisance. Someone who shouldn’t stand proud and loud of who I am. Yet humble myself because I’m the unprofessional look.

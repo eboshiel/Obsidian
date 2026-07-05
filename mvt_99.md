@@ -1,3 +1,0 @@
-Chelsea Lugone
-
-Ortho Virginia

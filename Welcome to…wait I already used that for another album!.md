@@ -1,3 +1,0 @@
-## Here is to evermore! This album was easily a favorite by me. The story that almost every song evoked was great. The ambiance of the album gave me sitting in a log cabin talking about the good old days. If that made any sense LOL. I didn't have too much to say about it it was a good listen and I feel like she was able come in tuned with a unique sound that just speaks to only Taylor. Highlights include No body, no crime, evermore, and ivy.
-
-Rating: 7/10

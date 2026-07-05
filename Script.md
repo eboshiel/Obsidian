@@ -1,1 +1,0 @@
-Astrocytomas are a type of brain tumor that arise from astrocytes, which are star shaped cells in brain and spine. They support nerve cells and maintain the health of the brains nervous tissue. Astrocytomas can range from low-grade, slow forming tumors to high-grade aggressive types.

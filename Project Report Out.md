@@ -1,9 +1,0 @@
-- Collaboration w other in the team
-- Felt behind since I had so many software issues the first 3 weeks
-- The ability to make meaningful work
-- Learning curve to learning new software
-- Having so many people as resources to ask any questions
-- Learning the process of drawing creation and the process and understanding them on a deeper basis
-- Being apart of the engineering process in terms of seeing the TX models first then be able to make way for those in the future to draw from these models in the vault for future design
-- Invitation to meetings to see more of what the team offer and different sides of the construction process
-- Being allowed flexibility to see other teams and how they operate

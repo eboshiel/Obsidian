@@ -1,1 +1,0 @@
-# We look at the Bible as God’s wrath encompassing us in saying He will kill us instead as instruction so that we won’t kill ourselves.

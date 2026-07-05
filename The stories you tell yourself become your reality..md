@@ -1,1 +1,0 @@
-# The stories you tell yourself become your reality.

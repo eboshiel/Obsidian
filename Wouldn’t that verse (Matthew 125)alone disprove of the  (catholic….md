@@ -1,1 +1,0 @@
-# Wouldn’t that verse (Matthew 1:25)alone disprove of the  (catholic) belief that Mary was forever a virgin. Which I do not know why it’s such a big deal for them

@@ -1,1 +1,0 @@
-# Life is made of days that are meaningless but moments that mean everything

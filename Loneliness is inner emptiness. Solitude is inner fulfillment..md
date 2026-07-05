@@ -1,1 +1,0 @@
-# Loneliness is inner emptiness. Solitude is inner fulfillment.

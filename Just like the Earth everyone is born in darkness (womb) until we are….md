@@ -1,1 +1,0 @@
-# Just like the Earth everyone is born in darkness (womb) until we are exposed to the light (God) which shines through the darkness

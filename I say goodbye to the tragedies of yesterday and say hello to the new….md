@@ -1,1 +1,0 @@
-I say goodbye to the tragedies of yesterday and say hello to the new mercies of today

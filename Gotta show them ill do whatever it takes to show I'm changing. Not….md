@@ -1,1 +1,0 @@
-# Gotta show them ill do whatever it takes to show I'm changing. Not words. But actions.

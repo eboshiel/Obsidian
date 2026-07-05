@@ -1,1 +1,0 @@
-[[SOZO slides.pdf]]
