@@ -1,0 +1,18 @@
+-$80 million
+-~~150~~
+-output made people within Economy C, no matter citizenship
+-~~$220~~
+-Dollars
+-Items produced in 2019 within the countrys border
+-$200000( the Ferrari’s price only
+-its measured over some period of time and may include value for some transactions where money didn’t actually change hands
+-$375
+-$37
+- Net exports can be negative
+- Imports are grater than exports
+- -30
+- 750
+- 380
+- 200
+- -10
+- 1320

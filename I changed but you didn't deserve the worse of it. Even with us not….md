@@ -1,0 +1,1 @@
+# I changed but you didn't deserve the worse of it. Even with us not being best friends right now you’ll be my favorite one to come around. It's not the same man being in your arms made me feel safe. That sounds such like a couple thing to do but idfc. You were my safety net and my rock. I messed up our bond for this shit to happen. That's some 💩

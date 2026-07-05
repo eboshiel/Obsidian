@@ -1,0 +1,1 @@
+# I thought I would continue to feel someway about us drifting apart. We did before. We’ll always be close. Maybe not like before. You’ll always be favorite best friend.
