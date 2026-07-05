@@ -1,0 +1,1 @@
+Humility is not putting ourselves down or hating ourselves but rather putting ourselves right where we belong

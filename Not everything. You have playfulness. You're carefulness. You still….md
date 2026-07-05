@@ -1,0 +1,1 @@
+# Not everything. You have playfulness. You're carefulness. You still care for people. You still bring smiles to people's faces even if you don't see that. You're an amazing person to around. The way you care for other people.

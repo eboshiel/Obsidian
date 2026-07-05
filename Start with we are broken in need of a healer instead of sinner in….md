@@ -1,0 +1,1 @@
+Obsessed with knowledge based learning instead of obedience based following

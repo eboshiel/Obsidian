@@ -1,0 +1,1 @@
+# Always ask to waive for an application fee

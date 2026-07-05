@@ -1,0 +1,1 @@
+# Sometimes our brain operates as a hallway of doors. We may have the capacity and knowledge already but be in another room.

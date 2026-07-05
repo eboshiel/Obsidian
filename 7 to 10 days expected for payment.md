@@ -1,0 +1,1 @@
+# 7 to 10 days expected for payment
