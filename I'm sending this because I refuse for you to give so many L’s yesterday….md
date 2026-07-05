@@ -1,0 +1,1 @@
+Alright, I'm content now. You definitely shot some heavy shots to my ego yesterday. your words hold so much weight 😭

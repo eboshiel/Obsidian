@@ -1,0 +1,1 @@
+I am currently an engineering student at VT, I love reading especially philosophy, exploring outdoors, soccer, and traveling! I am always seeking to grow in faith so finding someone who desires to be on fire for the Lord is important to me! One of my favorite verses is Proverbs 1:7

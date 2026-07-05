@@ -1,0 +1,1 @@
+# Lord my finite ability is not a hindrance to your infinite capability
