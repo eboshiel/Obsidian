@@ -1,3 +1,1 @@
-https://gghp_WIYHniq7s|TiAoq0v9tQvNivtT
-
-HbDT2eCPdX@github.com
+WIYHniq7s|TiAoq0v9tQvNivtTHbDT2e
