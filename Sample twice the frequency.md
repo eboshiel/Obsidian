@@ -1,0 +1,1 @@
+# Sample twice the frequency

@@ -1,0 +1,4 @@
+Confidence 
+Action
+Precision 
+Enthusiasm

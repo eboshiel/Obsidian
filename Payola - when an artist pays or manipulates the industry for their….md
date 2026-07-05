@@ -1,0 +1,1 @@
+# Payola - when an artist pays or manipulates the industry for their music to chart higher.

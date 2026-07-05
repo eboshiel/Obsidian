@@ -1,0 +1,8 @@
+-barter
+-medium of exchange
+-store of value
+-3 million japanese painting
+- Public cash + checking accounts
+- Medium of exchange
+- Everything in M1 plus most types of savings
+- Cash + checking + savings

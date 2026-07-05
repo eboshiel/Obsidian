@@ -1,0 +1,1 @@
+# Tbh i don’t like texting on this app so add me on insta instead @its.ebny
