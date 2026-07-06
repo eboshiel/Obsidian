@@ -1,0 +1,1 @@
+# You promised forever but now look at us. You said you won't even be in my life after high school. One call could fix this whole thing but it's not on me. I apologized still waiting on mines. If you really cared, we would've talked about it by now.  Talk like mature people but you took the low route. So I guess I gotta go high.

@@ -1,11 +1,43 @@
-2026-07-0515:31
+2026-07-05 17:07
 
-Status:
-
-Tags:
 
 # Miracles by CS Lewis
+## Genre
+- [x] Philosophy
+- [ ] Finances
+- [ ] Self Help
+- [x] Theology
+- [x] Christianity
+- [ ] Dystopian
+- [ ] Murder Mystery
+- [ ] Black Authors
+- [ ] History
+- [ ] Thrillers
+- [ ] Fantasy
+- [ ] Nonfiction
+- [ ] Young Adult
+## Chapters
+1. THE SCOPE OF THIS BOOK
+2. THE NATURALIST AND THE SUPERNATURALIST
+3. THE CARDINAL DIFFICULTY OF NATURALISM
+- 
+1. NATURE AND SUPERNATURE
+2. A FURTHER DIFFICULTY IN NATURALISM
+3. ANSWERS TO MISGIVINGS
+4. A CHAPTER OF RED HERRINGS
+5. MIRACLES AND THE LAWS OF NATURE
+6. A CHAPTER NOT STRICTLY NECESSARY
+7. ‘HORRID RED THINGS’
+8. CHRISTIANITY AND ‘RELIGION’
+9.  THE PROPRIETY OF MIRACLES
+10.  ON PROBABILITY
+11. THE GRAND MIRACLE
+12. MIRACLES OF THE OLD CREATION
+13.  MIRACLES OF THE NEW CREATION
+14. Epilogue
+
+## Keywords
 
 
+## Themes
 
-# References

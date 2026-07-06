@@ -1,0 +1,1 @@
+# Life can change in a matter of seconds. Be grateful for what you have.

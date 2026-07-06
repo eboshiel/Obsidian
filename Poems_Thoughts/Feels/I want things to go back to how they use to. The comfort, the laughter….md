@@ -1,0 +1,1 @@
+# I want things to go back to how they use to. The comfort, the laughter, the joking. The facetime calls. Everything. But fucking time I get it. Or maybe it was supposed to end up this way but I don't like it.
