@@ -20,7 +20,8 @@
 1. THE SCOPE OF THIS BOOK
 2. THE NATURALIST AND THE SUPERNATURALIST
 3. THE CARDINAL DIFFICULTY OF NATURALISM
-- 
+- units of matter are permanently incalculable to us based on the laws of Nature
+- Because matter moves that is random effect and is in of itself immeasurable, it is not bound by the law of Nature (everything is explained by reasonable reason, not chance)
 1. NATURE AND SUPERNATURE
 2. A FURTHER DIFFICULTY IN NATURALISM
 3. ANSWERS TO MISGIVINGS
