@@ -1,0 +1,1 @@
+Could you say a plant is simply the result of an input by a control system?
