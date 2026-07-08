@@ -9,3 +9,4 @@ Dating Questions
 	•	What was your GPA in college? Why?
 	•	How make did you make? Did you pay every bill on time? Debts? What kind of debts?
 	•	10 years from now how do you view your life?
+	
