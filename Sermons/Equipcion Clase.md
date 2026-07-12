@@ -6,7 +6,7 @@ Session 1 Takeaway
 	⁃	A discipler bears fruit
 
 Session 2 takeaway
-
+-
 
 
 Session 3 Takeaway
@@ -15,3 +15,5 @@ Session 3 Takeaway
 	⁃	As we read OT, we can know and see the fullness of the love of God
 	⁃	Jesus uses the OT to reveal truth about himself
 	⁃	Read the canonical gospels as if we were living it.
+Session 4 Takeaways
+- 
