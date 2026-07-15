@@ -16,4 +16,7 @@ Session 3 Takeaway
 	⁃	Jesus uses the OT to reveal truth about himself
 	⁃	Read the canonical gospels as if we were living it.
 Session 4 Takeaways
-- 
+- the Bible speaks into our life each and everyday
+- We get to walk in life with the Holy Spirit dwelling within us
+- want to allow the scripture to speak into life of man
+- though there is diversity in the expression, there is unity in the message of the Bible 
