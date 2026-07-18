@@ -20,3 +20,6 @@ Session 4 Takeaways
 - We get to walk in life with the Holy Spirit dwelling within us
 - want to allow the scripture to speak into life of man
 - though there is diversity in the expression, there is unity in the message of the Bible 
+Session 5 takeaways
+- Bible study and abiding should be different
+- Abiding time with Jesus is relational

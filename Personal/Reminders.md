@@ -1,6 +1,6 @@
 - [x] Homework ME 3534 ()(@2026-07-14)
 - [x] Lab Quiz (@2026-07-12 23:55)
-- [ ] Electric Bill 🔁 every month (@2026-07-16 08:00)
+- [x] Electric Bill 🔁 every month (@2026-07-16 08:00)
 - [ ] Email about EDU Email (@2027-04-30 08:00)
 - [x] 4 Water Bottles 🔁 every weekday(@2026-07-09 07:00)
 - [x] Budget Spreadsheet 🔁 every weekday(@2026-07-09 21:00)
